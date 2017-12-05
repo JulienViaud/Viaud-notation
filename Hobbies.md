@@ -1,0 +1,3 @@
+- le shorinji kempo (self-defense japonais)
+- le surf et le windsurf
+- la musique
